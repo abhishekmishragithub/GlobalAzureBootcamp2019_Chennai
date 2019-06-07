@@ -1,4 +1,4 @@
-# Quick Refrence :
+# Quick Refrences :
 
 - https://bit.ly/2wD8l3x
 - https://bit.ly/2K4B3CU
